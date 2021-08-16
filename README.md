@@ -1,0 +1,1 @@
+# IBBS-3-Duzey-Bolgeleri-Kisi-Basi-Gelir-Duzeylerini-Etkileyen-Etmenler-Panel-Veri-Analizi
